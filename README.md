@@ -1,5 +1,5 @@
 
-![fondo](https://github.com/user-attachments/assets/f33f2cb9-7500-437d-b01d-f4450c13eb7c)
+![banner](https://github.com/user-attachments/assets/69059b8f-be62-4c04-8d2e-24c863055de7)
 
 ## Descripción
 
